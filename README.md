@@ -1,1 +1,0 @@
-# arsen-ambartsumyan-bio
